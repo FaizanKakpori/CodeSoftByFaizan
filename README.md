@@ -1,0 +1,1 @@
+https://landingpagefaizu.netlify.app/
